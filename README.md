@@ -1,4 +1,4 @@
-**Memorial Site for Syliva Price Greenwood** *1935 - 2020* 
+**Memorial Site for [Syliva Price Greenwood](https://civics.github.io/Sylvia)** *1935 - 2020* 
 
 
 
