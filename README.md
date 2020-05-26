@@ -1,6 +1,9 @@
 # Memorial Site for [Syliva Price Greenwood](https://civics.github.io/Sylvia)
 ### *1935 - 2020* 
 
+-----
+
+
 GREENWOOD, Sylvia Price, of Burlington, previously of Lexington, passed away on May 20th, 2020.  
 
 She graduated from Newton North High School and attended Adelphi College and was an accomplished painter.  She was known for her thoughtfulness, sociability, and humor and loved to entertain.  A dedicated wife to Eugene Greenwood, who predeceased her, Sylvia leaves behind sons James, Andrew, and Daniel. She will be remembered for her spirit, compassion, and loving nature.
